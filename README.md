@@ -1,14 +1,14 @@
 # Ane
 Survey
 
-Hello Everyone!
+[Marketing] Proof of Market Traction (US & Canada 16+) Media & Entertainment Industry
 
-I am very close to securing an investor for Anemoia Inc., BUT I am in need of help. I am gathering data to prove MVP & PMT.
+It Takes Less Than 5 Minutes!
 
-Please click the link and take part in this consensus, and then SHARE, Share, ShArE and share!
+Please Fill It Out, RT & Share! 💛👇🏾
 
-I will be keeping this consensus link pinned for awhile, so please, please, please, fill it out, RT and share it. The more information I have gathered the better and the faster Anemoia Inc becomes a reality.
+docs.google.com/forms/d/e/1FAI…
 
-I know filling out consensus are a pain but this is super imperative for a startup and I would really, REALLY appreciate it!
+Thank You To Everyone Who Already Has! 🙏🏾
 
-[Anemoia Consensus](https://docs.google.com/forms/d/e/1FAIpQLScsgj8T4hiHkt2A5UC-EfAxOW0DOWHfbQwweseUUpL0tXu3NA/viewform)
+#NEET #Poll #Survey #Consensus[Anemoia Studios Survey](https://docs.google.com/forms/d/e/1FAIpQLScsgj8T4hiHkt2A5UC-EfAxOW0DOWHfbQwweseUUpL0tXu3NA/viewform)
